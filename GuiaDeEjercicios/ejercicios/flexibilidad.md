@@ -4,3 +4,10 @@
 
 Este ejercicio mejora la flexibilidad de los isquitoibiales, la movilidad de la columna y la coordinación al tocar alternadamente los pies con las manos mientras mantienes el ritmo.
 
+# Beneficios:
+
+- Aumenta la flexibilidad de piernas y espalda.
+- Mejora la movilidad articular.
+- Mejora la coordinación.
+- Mantiene la frecuencia cardiaca ligeramente elevada.
+
