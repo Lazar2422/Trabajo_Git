@@ -23,3 +23,8 @@ Activa los brazos y los hombros mientras mantiene la frecuencia cardíaca elevad
 - Duración:
 	Realiza el ejercicio durante 30-45 segundos o haz 10-15 repeticiones por lado.
 
+# Consejos:
+
+- Mantén la respiración controlada para evitar balanceos.
+- Separa ligeramente los pies para mayor estabilidad.
+- Si es muy difícil apoya las rodillas en el suelo.
