@@ -12,4 +12,14 @@ Activa los brazos y los hombros mientras mantiene la frecuencia cardíaca elevad
 - Aumenta la resistencia muscular.
 - Activa el sistema cardiovascular al mantener el ritmo.
 
+# Instrucciones:
+
+- Posición inicial:
+	Colócate en posición de plancha alta con las manos alineadas con los hombros y el cuerpo recto.
+- Toque de hombro:
+	Levanta una mano y toca el hombro opuesto sin mover demasiado el torso.
+- Alterna:
+	Vuelve la mano al suelo y repite con la otra mano.
+- Duración:
+	Realiza el ejercicio durante 30-45 segundos o haz 10-15 repeticiones por lado.
 
