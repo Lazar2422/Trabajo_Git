@@ -11,3 +11,13 @@ Este ejercicio mejora la flexibilidad de los isquitoibiales, la movilidad de la 
 - Mejora la coordinación.
 - Mantiene la frecuencia cardiaca ligeramente elevada.
 
+# Instrucciones:
+
+- Posición inicial:
+	Ponte de pie con los pies separados al ancho de los hombros y los brazos extendidos a los lados.
+- toque alternado:
+	Inclínate hacia adelante y toca el pie derecho con la mano izquierda mientras mantienes la espalda recta.
+- Cambio de lado:
+	Vuelve al centro y repite con la mano derecha tocando el pie izquierdo.
+- Duración: Realiza el ejercicio durante 30-45 segundos o 10 repeticiones por lado.
+
