@@ -8,7 +8,7 @@ Es un ejercicio de cardio de bajo impacto en el cual levantas las rodillas alter
 
 - Aumenta la frecuencia cardíaca de forma controlada.
 - Mejora la circulación y la movilidad.
-- Fortalece piernas y core.
+- Fortalece piernas.
 - Bajo impacto, ideal para cualquier nivel de condición fisica.
 
 # Instrucciones:
@@ -22,3 +22,8 @@ Es un ejercicio de cardio de bajo impacto en el cual levantas las rodillas alter
 - Duración:
 	Mantén el ritmo durante 30-60 segundos o según tu capacidad.
 
+# Consejos:
+
+- Mantén La espalda recta.
+- Aumenta la velocidad gradualmente si quieres mayor intensidad.
+- Puedes hacerlo como calentamiento o ejercicio principal segçun tu nivel.
