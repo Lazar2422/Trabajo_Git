@@ -21,3 +21,8 @@ Este ejercicio mejora la flexibilidad de los isquitoibiales, la movilidad de la 
 	Vuelve al centro y repite con la mano derecha tocando el pie izquierdo.
 - Duración: Realiza el ejercicio durante 30-45 segundos o 10 repeticiones por lado.
 
+# Consejos:
+
+- No fuerces demasiado el estiramiento, deja que el cuerpo se acostumbre al movimiento.
+- Mantén un ritmo fluido y controlado.
+- Respira profundamente para mejorar la relajación muscular.
