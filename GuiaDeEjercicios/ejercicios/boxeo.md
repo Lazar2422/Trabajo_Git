@@ -19,3 +19,10 @@ El salto con cuerda es uno de los ejercicios más tradicionales y efectivos en e
 - Al saltar, gira la cuerda con las muñecas, no con los brazos. Esto hace que el movimiento sea más eficiente y menos cansado.
 - Empieza con 1-2 minutos de saltos continuos y aumenta gradualmente el tiempo a medida que ganes resistencia.
 - Intenta hacer 3-4 series de 2 a 3 minutos, con breves descansos entre cada serie.
+
+# Consejos:
+
+- Mantén una postura erguida mientras saltas y no dejes que los hombros se tensen.
+- Si eres principiante, comienza con saltos suaves o saltos alternos (un pie a la vez) hasta que te sientas cómodo con el ritmo.
+- Usa calzado adecuado para amortiguar los impactos y proteger tus tobillos y rodillas.
+- Puedes variar los saltos para aumentar la dificultad: saltos dobles (dos giros de cuerda por salto), saltos de lado a lado o saltos alternos.
