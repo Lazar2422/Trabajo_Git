@@ -20,3 +20,10 @@ El burpee es un ejercicio de cuerpo completo que combina una flexión, una senta
 - Haz una flexión (opcional para principiantes o si tienes suficiente fuerza) y luego salta los pies de vuelta hacia las manos.
 - Desde la posición de sentadilla, da un salto explosivo hacia arriba, extendiendo los brazos por encima de la cabeza.
 - Aterriza suavemente y repite el movimiento.
+
+# Consejos:
+
+- Mantén el core activado durante todo el ejercicio para proteger tu espalda baja.
+- Si eres principiante, puedes hacer una versión modificada sin el salto, simplemente volviendo a la posición de pie después de la plancha.
+- Concéntrate en la técnica antes de intentar hacerlo rápidamente para evitar lesiones.
+- Puedes aumentar la dificultad incorporando un salto con palmada al final o agregando peso si te sientes cómodo.
