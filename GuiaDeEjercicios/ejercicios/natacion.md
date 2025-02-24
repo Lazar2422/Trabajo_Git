@@ -19,3 +19,9 @@ El ejercicio de Superman es excelente para trabajar la fuerza y la estabilidad e
 - Mantén esta postura durante 20-30 segundos, apretando los glúteos y la espalda baja mientras mantienes la respiración controlada.
 - Baja lentamente el cuerpo hacia el suelo y descansa por unos segundos.
 - Realiza de 3 a 4 series, aumentando gradualmente el tiempo de retención a medida que te haces más fuerte.
+
+# Consejos:
+
+- Asegúrate de no arquear excesivamente la espalda baja, ya que esto podría generar presión innecesaria en la columna vertebral.
+- Mantén los glúteos apretados y las piernas estiradas para evitar que se caigan hacia el suelo.
+- Si sientes que tu cuello se tensa, asegúrate de que tu cabeza esté alineada con el cuerpo y no la levantes demasiado.
