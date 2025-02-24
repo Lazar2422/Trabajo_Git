@@ -11,3 +11,11 @@ El salto con cuerda es uno de los ejercicios más tradicionales y efectivos en e
 - Fortalece las piernas y el core: Trabaja intensamente los músculos de las piernas (especialmente pantorrillas, cuádriceps e isquiotibiales) y el core (abdomen y zona lumbar).
 - Desarrolla la agilidad: Los movimientos rápidos y ligeros te ayudan a mejorar la rapidez de pies, algo esencial para esquivar golpes y moverse con eficacia en el ring.
 - Quema calorías y mejora la condición física general: Es un ejercicio de alta intensidad que contribuye a mejorar la composición corporal y la resistencia general.
+
+# Instrucciones:
+
+- Comienza con la cuerda en las manos, sosteniéndola con ambas palmas hacia abajo, los codos ligeramente doblados a los costados y las muñecas listas para mover la cuerda.
+- Da un pequeño salto con ambos pies para hacer que la cuerda pase por debajo de tus pies. Trata de mantener los pies cerca del suelo para usar menos energía y minimizar el impacto en las rodillas.
+- Al saltar, gira la cuerda con las muñecas, no con los brazos. Esto hace que el movimiento sea más eficiente y menos cansado.
+- Empieza con 1-2 minutos de saltos continuos y aumenta gradualmente el tiempo a medida que ganes resistencia.
+- Intenta hacer 3-4 series de 2 a 3 minutos, con breves descansos entre cada serie.
