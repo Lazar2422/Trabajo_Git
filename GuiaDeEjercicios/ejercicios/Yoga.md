@@ -11,3 +11,11 @@ La postura del niño es una asana de descanso y estiramiento que se realiza sent
 - Mejora la flexibilidad: Estira las caderas, los muslos y las rodillas.
 - Favorece la respiración profunda: La postura promueve la expansión del abdomen, lo que facilita la respiración profunda.
 - Recuperación: Es excelente para usarla entre otras posturas más exigentes para restaurar energía.
+
+# Instrucciones:
+
+- Siéntate sobre las rodillas en el mat, con los pies juntos y las rodillas separadas a la altura de las caderas.
+- Inhala y, al exhalar, baja lentamente el torso hacia el suelo, extendiendo los brazos hacia adelante o descansando a lo largo del cuerpo.
+- Coloca la frente en el mat y relaja la mandíbula, respirando profundamente.
+- Mantén la postura durante 1-5 minutos o el tiempo que necesites para relajarte y recuperar energía.
+- Para salir, presiona ligeramente con las manos y eleva el torso de manera lenta y suave.
