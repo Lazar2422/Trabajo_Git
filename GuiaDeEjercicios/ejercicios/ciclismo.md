@@ -21,3 +21,8 @@ Las estocadas son un ejercicio fundamental para fortalecer las piernas y los gl�
 - Repite con la pierna opuesta.
 - Realiza de 3 a 4 series de 10 a 15 repeticiones por pierna.
 
+# Consejos:
+
+- Mantén la espalda recta y el core activado durante todo el ejercicio.
+- Asegúrate de que la rodilla de la pierna delantera no pase más allá de los dedos del pie para evitar lesiones.
+- Si es necesario, puedes hacer el ejercicio más fácil manteniendo la pierna trasera en el suelo y realizando una estocada más pequeña.
