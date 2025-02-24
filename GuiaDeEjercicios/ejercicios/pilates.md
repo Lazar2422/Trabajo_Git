@@ -21,3 +21,11 @@
 - Exhala por 5 movimientos de los brazos.
 - Repite el patrón hasta llegar a 100 movimientos.
 - Baja lentamente el torso y las piernas para descansar al final de la serie.
+
+# Consejos:
+
+- Mantén el abdomen bien activado y evita que la espalda baja se arquee al realizar el ejercicio.
+- Si te resulta difícil mantener las piernas estiradas, puedes mantenerlas dobladas o más cerca del suelo.
+- Asegúrate de respirar profundamente y coordinar la respiración con el movimiento de los brazos para maximizar los beneficios.
+- Mantén los hombros alejados de las orejas para evitar tensión en la parte superior del cuerpo.
+
