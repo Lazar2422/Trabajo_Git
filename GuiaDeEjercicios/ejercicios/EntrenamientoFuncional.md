@@ -11,7 +11,7 @@ Este ejercicio de entrenamiento funcional combina fuerza, resistencia y coordina
 - Quema calorías y mejora la composición corporal.
 - Desarrolla coordinación y equilibrio.
 
-# Instructions:
+# Instrucciones:
 
 Realiza el siguiente circuito 3-4 veces con 40 segundos de trabajo y 20 segundos de descanso entre ejercicios.
 
@@ -34,3 +34,11 @@ Realiza el siguiente circuito 3-4 veces con 40 segundos de trabajo y 20 segundos
 	Mantén el cuerpo recto y contrae el abdomen.
 	Eleva una pierna sin arquear la espalda, sostén un segundo y bájala.
 	Alterna con la otra pierna.
+
+# Consejos:
+
+- Mantén una buena postura para evitar lesiones.
+- Controla la respiración.
+- No sacrifiques la técnica por la velocidad. Es mejor ahcer menos repeticiones bien ejecutadas.
+- Ajusta la intensidad según tu nivel.
+- Hidrátate y realiza un buen calentamiento antes de comenzar.
