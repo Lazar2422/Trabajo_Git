@@ -19,3 +19,9 @@ La postura del niño es una asana de descanso y estiramiento que se realiza sent
 - Coloca la frente en el mat y relaja la mandíbula, respirando profundamente.
 - Mantén la postura durante 1-5 minutos o el tiempo que necesites para relajarte y recuperar energía.
 - Para salir, presiona ligeramente con las manos y eleva el torso de manera lenta y suave.
+
+# Consejos:
+
+- Si tienes molestias en las rodillas, puedes colocar un cojín o una manta debajo para hacer la postura más cómoda.
+- Si no puedes tocar el suelo con la frente, coloca un bloque de yoga o una almohada debajo para mayor soporte.
+- Mantén los brazos estirados hacia adelante si deseas estirar más la parte superior del cuerpo, o colócalos a lo largo del torso para una sensación de mayor relajación.
